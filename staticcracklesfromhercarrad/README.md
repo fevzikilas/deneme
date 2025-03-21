@@ -1,0 +1,1 @@
+2- Static crackles from her car radio as she drives home. A distorted voice cuts through: *“347 days left.”*
