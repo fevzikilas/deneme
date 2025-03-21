@@ -1,0 +1,1 @@
+7- The door splinters. A gloved hand grips her wrist. She screams—
