@@ -1,1 +1,0 @@
-3- Her bathroom mirror fogs up. A message scrawls itself in the steam: *DON’T TRUST THEM.*
