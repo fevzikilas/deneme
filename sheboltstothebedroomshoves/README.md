@@ -1,1 +1,0 @@
-6- She bolts to the bedroom, shoves a dresser against the door. Heavy footsteps climb the stairs.
