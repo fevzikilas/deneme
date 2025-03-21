@@ -1,1 +1,0 @@
-4- She dials 911. The line connects to dead air. A whisper: *“They’re already in the house.”*
