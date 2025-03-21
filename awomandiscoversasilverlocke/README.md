@@ -1,1 +1,0 @@
-1- A woman discovers a silver locket in her raincoat pocket, engraved with a date she doesn’t recognize. Inside: a photo of herself.
